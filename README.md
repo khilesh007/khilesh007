@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @khilesh007.
+- 🌱 I’m currently pursuing Bachelor's Degree in Computer Science from IIIT Naya Raipur.
+- 📫 Feel free to reach me at khilesh2907@gmail.com
